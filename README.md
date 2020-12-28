@@ -1,1 +1,0 @@
-# PGENE535---Morfologia-Matem-tica
